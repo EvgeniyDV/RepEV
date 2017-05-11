@@ -1,2 +1,1 @@
-hello ggg999
-1234543894å891348å
+hello my dear friend
